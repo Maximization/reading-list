@@ -3,3 +3,5 @@
 Have you read an amazing book lately? And do you think that this list is incomplete without it? Feel free to open an issue. Recommendations are appreciated.
 
 As this list will (hopefully) expand I will start categorizing books.
+
++  [Smartcuts](http://www.amazon.com/Smartcuts-Hackers-Innovators-Accelerate-Success/dp/0062302450) by Shane Snow
