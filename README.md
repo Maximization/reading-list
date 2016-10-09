@@ -8,3 +8,4 @@ As this list will (hopefully) expand I will start categorizing books.
 + [How to Win Friends & Influence People](http://www.amazon.com/How-Win-Friends-Influence-People/dp/0671027034) by Dale Carnegie
 + [Rework](http://www.amazon.com/Rework-Jason-Fried/dp/0307463745) by Jason Fried & David Heinemeier Hansson
 + [Zero to One](http://www.amazon.com/Zero-One-Notes-Startups-Future/dp/0804139296) by Peter Thiel
++ [The Year Without Pants](https://www.amazon.com/Year-Without-Pants-WordPress-com-Future/dp/1118660633) by Scott Berkun
