@@ -1,6 +1,6 @@
 # Maxim's reading list
 
-Have you read an amazing book lately and do you think this list is incomplete without it? Feel free to open an issue. Recommendations are appreciated!
+Have you read an incredible book and do you think this list is incomplete without it? Feel free to open an issue. Recommendations are welcome!
 
 As this list will (hopefully) expand later on I will start categorizing books.
 
