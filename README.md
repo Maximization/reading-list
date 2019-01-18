@@ -10,3 +10,5 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Zero to One](https://www.amazon.com/Zero-One-Notes-Startups-Future/dp/0804139296) by Peter Thiel ⭐️⭐️
 + [The Year Without Pants](https://www.amazon.com/Year-Without-Pants-WordPress-com-Future/dp/1118660633) by Scott Berkun ⭐️
 + [Elon Musk: Tesla, SpaceX, and the Quest for a Fantastic Future](https://www.amazon.com/Elon-Musk-SpaceX-Fantastic-Future/dp/0062301233) by Ashlee Vance ⭐️⭐️⭐️
++ [The Amazing Development of Men](https://www.amazon.com/Amazing-Development-Men-Expanded-2nd/dp/B00B2PID8S) by Alison A. Armstrong ⭐️⭐️⭐️
++ [Understanding Women](https://www.amazon.com/Understanding-Women-Unlock-the-Mystery/dp/B00B0G28GW) by Alison A. Armstrong ⭐️⭐️
