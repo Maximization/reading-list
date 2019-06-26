@@ -14,3 +14,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [The Amazing Development of Men](https://www.amazon.com/Amazing-Development-Men-Expanded-2nd/dp/B00B2PID8S) by Alison A. Armstrong ⭐️⭐️⭐️
 + [Understanding Women](https://www.amazon.com/Understanding-Women-Unlock-the-Mystery/dp/B00B0G28GW) by Alison A. Armstrong ⭐️⭐️
 + [Just Fucking Ship](https://stackingthebricks.com/just-fucking-ship/) by Amy Hoy ⭐️⭐️
++ [The Power of Habit](https://www.amazon.com/Power-Habit-What-Life-Business/dp/081298160X) by Charles Duhigg ⭐️⭐️⭐️
