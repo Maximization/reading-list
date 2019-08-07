@@ -15,3 +15,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Understanding Women](https://www.amazon.com/Understanding-Women-Unlock-the-Mystery/dp/B00B0G28GW) by Alison A. Armstrong ⭐️⭐️
 + [Just Fucking Ship](https://stackingthebricks.com/just-fucking-ship/) by Amy Hoy ⭐️⭐️
 + [The Power of Habit](https://www.amazon.com/Power-Habit-What-Life-Business/dp/081298160X) by Charles Duhigg ⭐️⭐️⭐️
++ [Badass: Making Users Awesome](https://www.amazon.com/Badass-Making-Awesome-Kathy-Sierra/dp/1491919019) by Kathy Sierra ⭐️⭐️
