@@ -16,3 +16,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Just Fucking Ship](https://stackingthebricks.com/just-fucking-ship/) by Amy Hoy ⭐️⭐️
 + [The Power of Habit](https://www.amazon.com/Power-Habit-What-Life-Business/dp/081298160X) by Charles Duhigg ⭐️⭐️⭐️
 + [Badass: Making Users Awesome](https://www.amazon.com/Badass-Making-Awesome-Kathy-Sierra/dp/1491919019) by Kathy Sierra ⭐️⭐️
++ [The Life-Changing Magic of Tidying Up: The Japanese Art of Decluttering and Organizing](https://www.amazon.com/Life-Changing-Magic-Tidying-Decluttering-Organizing/dp/1607747308) by Marie Kondō ⭐️
