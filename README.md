@@ -18,3 +18,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Badass: Making Users Awesome](https://www.amazon.com/Badass-Making-Awesome-Kathy-Sierra/dp/1491919019) by Kathy Sierra ⭐️⭐️
 + [The Life-Changing Magic of Tidying Up: The Japanese Art of Decluttering and Organizing](https://www.amazon.com/Life-Changing-Magic-Tidying-Decluttering-Organizing/dp/1607747308) by Marie Kondō ⭐️
 + [Refactoring UI](https://refactoringui.com/) by Adam Wathan & Steve Schoger ⭐️⭐️
++ [Anything You Want](https://www.amazon.com/Anything-You-Want-Lessons-Entrepreneur/dp/1511366079) by Derek Sivers ⭐️⭐️
