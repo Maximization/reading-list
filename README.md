@@ -1,6 +1,6 @@
 # Maxim's reading list
 
-Have you read an incredible book and do you think this list is incomplete without it? Feel free to open an issue. Recommendations are welcome!
+Have you read an incredible book that I should read too? [Open a discussion](https://github.com/Maximization/reading-list/discussions/new). Recommendations are welcome!
 
 You can also [find me on Goodreads](https://www.goodreads.com/user/show/60231550-maxim).
 
