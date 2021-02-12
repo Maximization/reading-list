@@ -2,6 +2,8 @@
 
 Have you read an incredible book and do you think this list is incomplete without it? Feel free to open an issue. Recommendations are welcome!
 
+You can also [find me on Goodreads](https://www.goodreads.com/user/show/60231550-maxim).
+
 As this list will (hopefully) expand later on I will start categorizing books.
 
 ### Non-fiction
