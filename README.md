@@ -26,3 +26,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 
 ### Fiction
 + [The Alchemist](https://www.amazon.com/Alchemist-Paulo-Coelho/dp/0061122416) by Paulo Coelho ⭐️⭐️⭐️
++ [The 100-Year-Old Man Who Climbed Out the Window and Disappeared](https://www.amazon.com/100-Year-Old-Man-Climbed-Window-Disappeared/dp/1401324649) by Jonas Jonasson ⭐️️️️️️️⭐️️️️️️️⭐️️️️️️️⭐️️️️️️️
