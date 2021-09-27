@@ -23,6 +23,7 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Refactoring UI](https://refactoringui.com/) by Adam Wathan & Steve Schoger ⭐️⭐️⭐️⭐️
 + [Anything You Want](https://www.amazon.com/Anything-You-Want-Lessons-Entrepreneur/dp/1511366079) by Derek Sivers ⭐️⭐️⭐️
 + [Rich Dad Poor Dad](https://www.amazon.com/Rich-Dad-Poor-Teach-Middle/dp/1612680194) by Robert T. Kiyosaki ⭐️
++ [Ocean Nomad: The Complete Atlantic Sailing Crew Guide](https://www.theoceanpreneur.com/books/) by Suzanne van der Veeken ⭐️️⭐️️⭐️⭐️⭐️
 
 ### Fiction
 + [The Alchemist](https://www.amazon.com/Alchemist-Paulo-Coelho/dp/0061122416) by Paulo Coelho ⭐️⭐️⭐️
