@@ -26,6 +26,7 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Ocean Nomad: The Complete Atlantic Sailing Crew Guide](https://www.theoceanpreneur.com/books/) by Suzanne van der Veeken ⭐️️⭐️️⭐️⭐️⭐️
 + [The Power of Now: A Guide to Spiritual Enlightenment](https://www.amazon.com/Power-Now-Guide-Spiritual-Enlightenment/dp/1577314808) by Eckhart Tolle ⭐️⭐️⭐️⭐️⭐️
 + [Dying To Be Me: My Journey from Cancer, to Near Death, to True Healing](https://www.amazon.com/Dying-Be-Me-Journey-Healing/dp/1401937535) by Anita Moorjani ⭐️⭐️⭐️⭐️
++ [Greenlights](https://www.amazon.com/Greenlights-Matthew-McConaughey/dp/0593139135) by Matthew McConaughey ⭐️⭐️⭐️
 
 ### Fiction
 + [The Alchemist](https://www.amazon.com/Alchemist-Paulo-Coelho/dp/0061122416) by Paulo Coelho ⭐️⭐️⭐️
