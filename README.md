@@ -35,3 +35,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [1984](https://www.amazon.com/1984-Signet-Classics-George-Orwell/dp/0451524934) by George Orwell ⭐️⭐️⭐️
 + [The Prophet](https://www.amazon.com/Prophet-Borzoi-Book-Kahlil-Gibran/dp/0394404289) by Kahlil Gibran ⭐️
 + [The Left Hand of Darkness](https://www.amazon.com/Left-Hand-Darkness-Ursula-Guin/dp/0441478123) by Ursula K. Le Guin ⭐️⭐️⭐️
++ [Skyward](https://www.amazon.com/Skyward-Brandon-Sanderson/dp/0399555773) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
