@@ -37,3 +37,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [The Left Hand of Darkness](https://www.amazon.com/Left-Hand-Darkness-Ursula-Guin/dp/0441478123) by Ursula K. Le Guin ⭐️⭐️⭐️
 + [Skyward](https://www.amazon.com/Skyward-Brandon-Sanderson/dp/0399555773) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Starsight](https://www.amazon.com/Starsight-Skyward-Brandon-Sanderson/dp/0399555811) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
++ [Sunreach](https://www.amazon.com/Sunreach-Skyward-Flight-Novella-ebook/dp/B09FYV1V4Z) by Brandon Sanderson & Janci Patterson ⭐️⭐️⭐️⭐️
