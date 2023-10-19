@@ -38,3 +38,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Skyward](https://www.amazon.com/Skyward-Brandon-Sanderson/dp/0399555773) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Starsight](https://www.amazon.com/Starsight-Skyward-Brandon-Sanderson/dp/0399555811) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Sunreach](https://www.amazon.com/Sunreach-Skyward-Flight-Novella-ebook/dp/B09FYV1V4Z) by Brandon Sanderson & Janci Patterson ⭐️⭐️⭐️⭐️
++ [ReDawn](https://www.amazon.com/ReDawn-Skyward-Flight-Novella-ebook/dp/B09FYV8T9J) by Brandon Sanderson & Janci Patterson ⭐️⭐️⭐️⭐️⭐️
