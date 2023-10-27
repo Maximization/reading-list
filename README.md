@@ -41,3 +41,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [ReDawn](https://www.amazon.com/ReDawn-Skyward-Flight-Novella-ebook/dp/B09FYV8T9J) by Brandon Sanderson & Janci Patterson ⭐️⭐️⭐️⭐️⭐️
 + [Cytonic](https://www.amazon.com/Cytonic-Skyward-Brandon-Sanderson/dp/0399555854) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Evershore](https://www.amazon.com/Evershore-Skyward-Flight-Novella-ebook/dp/B09FYVGJVW) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
++ [Defending Elysium](https://www.amazon.com/Defending-Elysium-Cytoverse-Novella-Skyward-ebook/dp/B09M3ZV4Y1) by Brandon Sanderson ⭐️⭐️
