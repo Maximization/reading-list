@@ -43,3 +43,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Evershore](https://www.amazon.com/Evershore-Skyward-Flight-Novella-ebook/dp/B09FYVGJVW) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Defending Elysium](https://www.amazon.com/Defending-Elysium-Cytoverse-Novella-Skyward-ebook/dp/B09M3ZV4Y1) by Brandon Sanderson ⭐️⭐️
 + [The Final Empire](https://www.amazon.com/Mistborn-Final-Empire-Book-No/dp/0765350386) by Brandon Sanderson ⭐️⭐️⭐️⭐️
++ [Defiant](https://www.amazon.com/Defiant-Skyward-Brandon-Sanderson/dp/0593309715) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
