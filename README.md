@@ -46,3 +46,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Defiant](https://www.amazon.com/Defiant-Skyward-Brandon-Sanderson/dp/0593309715) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [The Well of Ascension](https://www.amazon.com/Well-Ascension-Mistborn-Book/dp/0765356139) by Brandon Sanderson ⭐️⭐️⭐️⭐️
 + [The Hero of Ages](https://www.amazon.com/Hero-Ages-Book-Three-Mistborn/dp/0765356147) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
++ [Legendborn](https://www.amazon.com/Legendborn-Cycle-Tracy-Deonn/dp/1534441611) by Tracy Deonn ⭐️⭐️⭐️⭐️
