@@ -48,3 +48,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [The Hero of Ages](https://www.amazon.com/Hero-Ages-Book-Three-Mistborn/dp/0765356147) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Legendborn](https://www.amazon.com/Legendborn-Cycle-Tracy-Deonn/dp/1534441611) by Tracy Deonn ⭐️⭐️⭐️⭐️
 + [The Emperor's Soul](https://www.goodreads.com/book/show/13578175-the-emperor-s-soul) by Brandon Sanderson ⭐️⭐️⭐️
++ [Bloodmarked](https://www.goodreads.com/book/show/59365195-bloodmarked) by Tracy Deonn ⭐️⭐️⭐️⭐️⭐️
