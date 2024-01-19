@@ -28,6 +28,7 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Dying To Be Me: My Journey from Cancer, to Near Death, to True Healing](https://www.amazon.com/Dying-Be-Me-Journey-Healing/dp/1401937535) by Anita Moorjani ⭐️⭐️⭐️⭐️
 + [Greenlights](https://www.amazon.com/Greenlights-Matthew-McConaughey/dp/0593139135) by Matthew McConaughey ⭐️⭐️⭐️
 + [What to Say When You Talk to Your Self](https://www.amazon.in/What-When-Talk-Your-Self/dp/1501171992) by Shad Helmstetter ⭐️⭐️⭐️⭐️⭐️
++ [Unfuck Your Brain](https://www.goodreads.com/book/show/34885438-unfuck-your-brain) by Faith G. Harper ⭐️⭐️
 
 ### Fiction
 + [The Alchemist](https://www.amazon.com/Alchemist-Paulo-Coelho/dp/0061122416) by Paulo Coelho ⭐️⭐️⭐️
