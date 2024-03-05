@@ -51,3 +51,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [The Emperor's Soul](https://www.goodreads.com/book/show/13578175-the-emperor-s-soul) by Brandon Sanderson ⭐️⭐️⭐️
 + [Bloodmarked](https://www.goodreads.com/book/show/59365195-bloodmarked) by Tracy Deonn ⭐️⭐️⭐️⭐️⭐️
 + [Dune](https://www.goodreads.com/book/show/44767458-dune) by Frank Herbert ⭐️⭐️⭐️⭐️
++ [Dune Messiah](https://www.goodreads.com/book/show/44492285-dune-messiah) by Frank Herbert ⭐️⭐️⭐️⭐️
