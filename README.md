@@ -54,3 +54,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Dune Messiah](https://www.goodreads.com/book/show/44492285-dune-messiah) by Frank Herbert ⭐️⭐️⭐️⭐️
 + [The Way of Kings](https://www.goodreads.com/book/show/7235533-the-way-of-kings) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Words of Radiance](https://www.goodreads.com/book/show/17332218-words-of-radiance) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
++ [Edgedancer](https://www.goodreads.com/book/show/34703445-edgedancer) by Brandon Sanderson ⭐️⭐️⭐️⭐️
