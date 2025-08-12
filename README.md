@@ -59,3 +59,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Dawnshard](https://www.goodreads.com/book/show/54511226-dawnshard) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Rhythm of War](https://www.goodreads.com/book/show/49021976-rhythm-of-war) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [The Will of the Many](https://www.goodreads.com/book/show/58416952-the-will-of-the-many) by James Islington ⭐⭐⭐⭐⭐
++ [Wind and Truth](https://www.goodreads.com/book/show/203578847-wind-and-truth) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
