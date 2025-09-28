@@ -61,3 +61,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [The Will of the Many](https://www.goodreads.com/book/show/58416952-the-will-of-the-many) by James Islington ⭐⭐⭐⭐⭐
 + [Wind and Truth](https://www.goodreads.com/book/show/203578847-wind-and-truth) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Oathbound](https://www.goodreads.com/book/show/214151316-oathbound) by Tracy Deonn ⭐️⭐️⭐️⭐️
++ [The Sunlit Man](https://www.goodreads.com/book/show/60531420-the-sunlit-man) by Brandon Sanderson ⭐⭐⭐⭐⭐
