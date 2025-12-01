@@ -62,3 +62,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Wind and Truth](https://www.goodreads.com/book/show/203578847-wind-and-truth) by Brandon Sanderson ⭐️⭐️⭐️⭐️⭐️
 + [Oathbound](https://www.goodreads.com/book/show/214151316-oathbound) by Tracy Deonn ⭐️⭐️⭐️⭐️
 + [The Sunlit Man](https://www.goodreads.com/book/show/60531420-the-sunlit-man) by Brandon Sanderson ⭐⭐⭐⭐⭐
++ [Warbreaker](https://www.goodreads.com/book/show/1268479.Warbreaker) by Brandon Sanderson ⭐⭐⭐⭐⭐
