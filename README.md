@@ -64,3 +64,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [The Sunlit Man](https://www.goodreads.com/book/show/60531420-the-sunlit-man) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [Warbreaker](https://www.goodreads.com/book/show/1268479.Warbreaker) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [The Tainted Cup](https://www.goodreads.com/book/show/150247395-the-tainted-cup) by Robert Jackson Bennett ⭐⭐⭐⭐
++ [The Strength of the Few](https://www.goodreads.com/book/show/169485073-the-strength-of-the-few) by James Islington ⭐⭐⭐⭐
