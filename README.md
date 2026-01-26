@@ -65,3 +65,5 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Warbreaker](https://www.goodreads.com/book/show/1268479.Warbreaker) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [The Tainted Cup](https://www.goodreads.com/book/show/150247395-the-tainted-cup) by Robert Jackson Bennett ⭐⭐⭐⭐
 + [The Strength of the Few](https://www.goodreads.com/book/show/169485073-the-strength-of-the-few) by James Islington ⭐⭐⭐⭐
++ [Tress of the Emerald Sea](https://www.goodreads.com/book/show/60531406-tress-of-the-emerald-sea) by Brandon Sanderson ⭐⭐⭐⭐⭐
++ [Yumi and the Nightmare Painter](https://www.goodreads.com/book/show/60531416-yumi-and-the-nightmare-painter) by Brandon Sanderson ⭐⭐⭐⭐⭐
