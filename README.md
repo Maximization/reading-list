@@ -67,3 +67,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [The Strength of the Few](https://www.goodreads.com/book/show/169485073-the-strength-of-the-few) by James Islington ⭐⭐⭐⭐
 + [Tress of the Emerald Sea](https://www.goodreads.com/book/show/60531406-tress-of-the-emerald-sea) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [Yumi and the Nightmare Painter](https://www.goodreads.com/book/show/60531416-yumi-and-the-nightmare-painter) by Brandon Sanderson ⭐⭐⭐⭐⭐
++ [Isles of the Emberdark](https://www.goodreads.com/book/show/210300489-isles-of-the-emberdark) by Brandon Sanderson ⭐⭐⭐⭐⭐
