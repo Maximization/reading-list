@@ -71,3 +71,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [The Alloy of Law](https://www.goodreads.com/book/show/10803121-the-alloy-of-law) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [Shadows of Self](https://www.goodreads.com/book/show/16065004-shadows-of-self) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [Allomancer Jak and the Pits of Eltania](https://www.goodreads.com/book/show/33357675-allomancer-jak-and-the-pits-of-eltania) by Brandon Sanderson ⭐⭐⭐
++ [The Bands of Mourning](https://www.goodreads.com/book/show/18739426-the-bands-of-mourning) by Brandon Sanderson ⭐⭐⭐⭐⭐
