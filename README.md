@@ -73,3 +73,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Allomancer Jak and the Pits of Eltania](https://www.goodreads.com/book/show/33357675-allomancer-jak-and-the-pits-of-eltania) by Brandon Sanderson ⭐⭐⭐
 + [The Bands of Mourning](https://www.goodreads.com/book/show/18739426-the-bands-of-mourning) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [Hyperthief: A Tale of the Cytoverse](https://www.goodreads.com/book/show/203357152-hyperthief) by Brandon Sanderson ⭐⭐⭐⭐
++ [Secret History](https://www.goodreads.com/book/show/28698036-secret-history) by Brandon Sanderson ⭐⭐⭐⭐⭐
