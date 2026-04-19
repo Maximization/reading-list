@@ -75,3 +75,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Hyperthief: A Tale of the Cytoverse](https://www.goodreads.com/book/show/203357152-hyperthief) by Brandon Sanderson ⭐⭐⭐⭐
 + [Secret History](https://www.goodreads.com/book/show/28698036-secret-history) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [The Eleventh Metal](https://www.goodreads.com/book/show/22823333-the-eleventh-metal) by Brandon Sanderson ⭐⭐⭐⭐
++ [The Lost Metal](https://www.goodreads.com/book/show/23947089-the-lost-metal) by Brandon Sanderson ⭐⭐⭐⭐⭐
