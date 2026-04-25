@@ -76,3 +76,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Secret History](https://www.goodreads.com/book/show/28698036-secret-history) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [The Eleventh Metal](https://www.goodreads.com/book/show/22823333-the-eleventh-metal) by Brandon Sanderson ⭐⭐⭐⭐
 + [The Lost Metal](https://www.goodreads.com/book/show/23947089-the-lost-metal) by Brandon Sanderson ⭐⭐⭐⭐⭐
++ [White Sand, Volume 1](https://www.goodreads.com/book/show/28862254-white-sand-volume-1) by Brandon Sanderson ⭐⭐⭐⭐
