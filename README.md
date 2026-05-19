@@ -80,3 +80,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [White Sand, Volume 2](https://www.goodreads.com/book/show/33551363-white-sand-volume-2) by Brandon Sanderson ⭐⭐⭐⭐
 + [White Sand, Volume 3](https://www.goodreads.com/book/show/39298848-white-sand-volume-3) by Brandon Sanderson ⭐⭐⭐⭐
 + [Elantris](https://www.goodreads.com/book/show/68427.Elantris) by Brandon Sanderson ⭐⭐⭐⭐⭐
++ [The Hope of Elantris](https://www.goodreads.com/book/show/10852065-the-hope-of-elantris) by Brandon Sanderson ⭐⭐⭐⭐
