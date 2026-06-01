@@ -82,3 +82,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Elantris](https://www.goodreads.com/book/show/68427.Elantris) by Brandon Sanderson ⭐⭐⭐⭐⭐
 + [The Hope of Elantris](https://www.goodreads.com/book/show/10852065-the-hope-of-elantris) by Brandon Sanderson ⭐⭐⭐⭐
 + [Harry Potter and the Philosopher's Stone](https://www.goodreads.com/book/show/42844155-harry-potter-and-the-philosopher-s-stone) by J.K. Rowling ⭐⭐⭐
++ [Harry Potter and the Chamber of Secrets](https://www.goodreads.com/book/show/15881.Harry_Potter_and_the_Chamber_of_Secrets) by J.K. Rowling ⭐⭐⭐
