@@ -84,3 +84,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Harry Potter and the Philosopher's Stone](https://www.goodreads.com/book/show/42844155-harry-potter-and-the-philosopher-s-stone) by J.K. Rowling ⭐⭐⭐
 + [Harry Potter and the Chamber of Secrets](https://www.goodreads.com/book/show/15881.Harry_Potter_and_the_Chamber_of_Secrets) by J.K. Rowling ⭐⭐⭐
 + [Harry Potter and the Prisoner of Azkaban](https://www.goodreads.com/book/show/5.Harry_Potter_and_the_Prisoner_of_Azkaban) by J.K. Rowling ⭐⭐⭐⭐
++ [Harry Potter and the Goblet of Fire](https://www.goodreads.com/book/show/58613424-harry-potter-and-the-goblet-of-fire) by J.K. Rowling ⭐⭐⭐⭐⭐
