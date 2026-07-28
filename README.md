@@ -86,3 +86,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Harry Potter and the Prisoner of Azkaban](https://www.goodreads.com/book/show/5.Harry_Potter_and_the_Prisoner_of_Azkaban) by J.K. Rowling ⭐⭐⭐⭐
 + [Harry Potter and the Goblet of Fire](https://www.goodreads.com/book/show/58613424-harry-potter-and-the-goblet-of-fire) by J.K. Rowling ⭐⭐⭐⭐⭐
 + [Harry Potter and the Order of the Phoenix](https://www.goodreads.com/book/show/58613451-harry-potter-and-the-order-of-the-phoenix) by J.K. Rowling ⭐⭐⭐⭐
++ [Harry Potter and the Half-Blood Prince](https://www.goodreads.com/book/show/58613345-harry-potter-and-the-half-blood-prince) by J.K. Rowling ⭐⭐⭐⭐
