@@ -88,3 +88,4 @@ As this list will (hopefully) expand later on I will start categorizing books.
 + [Harry Potter and the Order of the Phoenix](https://www.goodreads.com/book/show/58613451-harry-potter-and-the-order-of-the-phoenix) by J.K. Rowling ⭐⭐⭐⭐
 + [Harry Potter and the Half-Blood Prince](https://www.goodreads.com/book/show/58613345-harry-potter-and-the-half-blood-prince) by J.K. Rowling ⭐⭐⭐⭐
 + [Harry Potter and the Deathly Hallows](https://www.goodreads.com/book/show/58613224-harry-potter-and-the-deathly-hallows) by J.K. Rowling ⭐⭐⭐⭐
++ [A Drop of Corruption](https://www.goodreads.com/book/show/213618143-a-drop-of-corruption) by Robert Jackson Bennett ⭐⭐⭐
